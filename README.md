@@ -1,4 +1,4 @@
 >> shh im sleeping
 
 
->> contact me at ChiselTip#1246
+>> contact me at chiseltip on discord
